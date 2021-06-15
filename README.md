@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Soumyajiitttt
+- 👋 Hi, I’m Soumyajit Basak
 - 👀 I’m interested in Coding,Playing sports,Photography.
 - 🌱 I’m currently learning B.Tech in Electronics and Communication Engineering.
 - 💞️ I’m looking to collaborate on ...
